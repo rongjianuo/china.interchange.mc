@@ -1,1 +1,1 @@
-# china.interchange.mc
+我的世界国际版交流群官网
